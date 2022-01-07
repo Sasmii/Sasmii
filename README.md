@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sasmii
+- 👀 I’m interested in (idk yet)
+- 🌱 I’m currently re learning parts of python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: Discord Sasmii#0735
